@@ -1,0 +1,1 @@
+To puchase the contract contact me to dnkaratzas@gmail.com or telegram: https://t.me/dioSpeed
